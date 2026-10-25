@@ -1,4 +1,4 @@
-![S. Ji & S. Park, 2026](https://github.com/JasonJish/ELDAAG2026_Ohio/blob/main/poster/ELDAAG2026_SanghoonJi.png)
+![S. Ji & S. Park, 2026](https://github.com/JasonJish/ELDAAG2026/blob/main/poster/ELDAAG2026_SanghoonJi.png)
 
 2026 Annual Meeting of the East Lakes Division of the American Association of Geographers, Columbus, Ohio
 
