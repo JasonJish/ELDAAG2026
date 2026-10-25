@@ -1,4 +1,4 @@
-![S. Ji & S. Park, 2026](https://github.com/user-attachments/assets/08833770-e101-4960-bfc2-526e1023691f)
+![S. Ji & S. Park, 2026](https://github.com/JasonJish/ELDAAG2026_Ohio/blob/main/poster/ELDAAG2026_SanghoonJi.pdf)
 
 **2026 Annual Meeting of the East Lakes Division of the American Association of Geographers, Columbus, Ohio**
 
